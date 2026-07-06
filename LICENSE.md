@@ -1,4 +1,4 @@
-# 
+# Ultime degen coin sniper bot extensions pour Mac OS | VIP degen coin sniper bot extensions pour PC Windows. Avec support multi-chaînes et détection de rug pull — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
